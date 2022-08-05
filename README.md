@@ -4,5 +4,5 @@ Repository ini digunakan sebagai sayembara pencarian volunter untuk pembuatan ap
 **\* Nama Lengkap, [Nama Portofolio](Alamat Portofolio)**
 
 Berikut daftar. Volunter yang diterima:
-* Oon ArfianDwi, [oo.or.id](https:/oo.or.id).
+* Siska, [Instagram](https://instagram.com/siska.ka_?igshid=YmMyMTA2M2Y=).
 * Gilang Yuda Pratama, [Blogger](https://garingkomedi.blogspot.com/).
